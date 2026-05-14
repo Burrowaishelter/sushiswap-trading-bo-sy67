@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with vip sushiswap trading bot Addon | sniper-trades + auto-compounding, the #1 sushiswap trading bot. Includes sniper-trades and auto-compounding for a
 
 
 
